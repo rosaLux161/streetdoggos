@@ -1,4 +1,4 @@
-# LEITFADEN FÜR DIE EINFUHR VON HUNDEN AUS DER REPUBLIK NORDMAZEDONIEN NACH IN DIE BUNDESREPUBLIK DEUTSCHLAND
+# LEITFADEN FÜR DIE EINFUHR VON HUNDEN AUS DER REPUBLIK NORDMAZEDONIEN IN DIE BUNDESREPUBLIK DEUTSCHLAND
 
 Die Einfuhr eines Hundes aus der Republik Nordmazedonien in die Bundesrepublik Deutschland erfordert die Einhaltung bestimmter Vorschriften und Bestimmungen. Dieser Leitfaden bietet nach bestem Wissen und Gewissen einen Überblick über die benötigten Unterlagen und Impfungen. Da sich die Gesetze und Bestimmungen jederzeit ändern können, ist es ratsam, zusätzliche Informationen einzuholen.
 
